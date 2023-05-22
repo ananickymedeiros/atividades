@@ -1,2 +1,2 @@
-# atividades
-postando aqui tudo feito em sala de aula
+# atividade
+postando aqui uma atividade feita em sala de aula
